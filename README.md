@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **amal.ts@gemsessence.com**
 
-- ⚡ Fun fact **I am an Immortal Player in Valorant also.**
+- ⚡ Fun fact **I am an Immortal Player in Valorant.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
